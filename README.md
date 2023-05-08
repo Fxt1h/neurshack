@@ -11,3 +11,7 @@ TR:
 3. Oyunu Fabric 1.19.2 ile çalıştırın
  
                      İyi Eğlenceler
+
+
+
+VIDEO https://www.youtube.com/watch?v=qW6J2uyQmn8&ab_channel=SKLIGGER
